@@ -11,4 +11,4 @@ Bienvenue dans ce dépôt dédié à la sécurité des bébés. Découvrez nos c
 2. Les meilleurs accessoires pour enfants
 3. Conseils pour les jeunes parents
 
-Téléchargez nos fichiers ci-dessous ou consultez notre site pour en savoir plus.
+Téléchargez notre fichier en [cliquant ici](Guide Pratique _ Choisir et Utiliser un Tour de Lit pour Bébé en Toute Sécurité.pdf) ou consultez notre site pour en savoir plus.
